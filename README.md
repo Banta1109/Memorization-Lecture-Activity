@@ -1,0 +1,1 @@
+# Memorization-Lecture-Activity
